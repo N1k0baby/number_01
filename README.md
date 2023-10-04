@@ -5,7 +5,20 @@
 2x
 3x
 4x
-mmFJIDUfioiiiii i 20102 3y1873568713y6 oghslhvdsfiuhgpsiuhgklsjdfhgiuosheughesiulrghiuoershgiuerh
+gjf
+2
+2
+2
+2
 
+2
+2
+2
+2
+
+2
+2
+28
+8
 
 
